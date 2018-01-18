@@ -1,5 +1,4 @@
 
-# Jana-Prosolovich
 
 Яна Просолович
 ===========================
@@ -18,6 +17,54 @@
 2. писать стихотворения 
 вот один из них :
 
+Маме
+
+Забери меня в детство, мама.
+Я от жизни устала немного.
+В детстве не было лжи и обмана,
+И все было не так уж строго..
+***
+Забери меня в детство, мама
+Мне вдруг стало в душе одиноко.
+Я не жалуюсь, просто устала.
+Мама, встреть меня у порога.
+***
+Я б прижалась к тебе, мама
+И печали прошли б стороной. 
+Так случилось, я вдруг стала
+Уже взрослой, но будто чужой. 
+***
+И я вновь у того порога,
+Как порой я хочу обратно.
+Я сегодня устала немного...
+Забери меня в детство, мама. 
+©Jana Preuß
+
+Перевод на немецкий :
+
+An Mutter
+
+Mutter, bring mich zurück in die Kindheit.
+Ich bin so von dem Leben erschöpft. 
+Damals war es so leicht und nicht schwierig,
+Keine Grenzen fürs Herz - war es schön.
+
+Mutter, bring mich zurück und behüte. 
+In der Seele bin ich einsam hier...
+Ich beschwere mich nicht, bin nur müde.
+Mutter, rett' mich, ich renne zu dir.
+
+Und ich hätte mich an dich gedrückt.
+Alles wäre dann gut. Happy end. 
+Es passiert so, ich möchte zurück.
+Bin erwachsen, doch zu fremd... 
+
+Ich bin wieder hier, ist es nicht schön?
+Wie es mir ums Herz warm wurde.
+Ich bin heute vom Leben erschöpft,
+Bringe mich in die Kindheit, Mutter.
+©Jana Preuß
+
 
 
 3.путешествовать ( в основном в Германию)
@@ -35,7 +82,7 @@
   
   Любимые книги
 * Немецкий урок. Зигфрид Ленц
-* Не смотря ни на что. Салия Кахауатте
+* Не смотря ни на что. Салия Кахауатте ( Mein blind Date mit meinem Leben)
 * 
 Любимые фильмы
 1. Лев
